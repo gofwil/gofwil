@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @gofwil
 - 👀 I’m interested in learn
 - 🌱 I’m  learning 
-- 💞️ I’m looking to collaborate in nothing
+- 💞️ I’m looking to collaborate (i need help!!)
 
 
 <!---
